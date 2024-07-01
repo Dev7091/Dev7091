@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **iamtatva@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nItJJhQgHzDyVJ_ZIvfEC4tUXUG9HS6t/view?usp=drive_link](https://drive.google.com/file/d/1nItJJhQgHzDyVJ_ZIvfEC4tUXUG9HS6t/view?usp=drive_link)
+- 📄 Know about my experiences [My Resume]([https://drive.google.com/file/d/1nItJJhQgHzDyVJ_ZIvfEC4tUXUG9HS6t/view?usp=drive_link](https://drive.google.com/file/d/18k0i06DznAoFdSna5_6bsWjxMNxv9F6f/view?usp=drive_link))
 
 - ⚡ Advisory **Enter at your own risk. Dragons may be lurking!😈**
 
